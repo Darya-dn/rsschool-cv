@@ -30,5 +30,5 @@ preparing for rs-school's courses.
 ### Education:
 *"International University "MITSO" Republic of Belarus (2012-2015)*
 
-*Finance and credit*
+*Specialty: Finance and credit*
 ##### Level of English: beginner
